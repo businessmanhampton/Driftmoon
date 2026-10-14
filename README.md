@@ -221,4 +221,4 @@ Driftmoon is completely free to download and play, with all features and updates
 Embark on your journey today and discover the magic of Driftmoon! Download now and experience the adventure of a lifetime!
 
 ---
-**Last updated:** 2026-10-14 03:57:12 UTC
+**Last updated:** 2026-10-14 09:25:06 UTC
